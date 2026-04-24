@@ -1,2 +1,2 @@
 # recipes
-https://beeflovingtexans.com/recipe/texas-juicy-lucy-burger/
+https://www.allrecipes.com/recipe/213797/juicy-lucy-burgers/
